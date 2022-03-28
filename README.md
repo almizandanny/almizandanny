@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @almizandanny
+- 👋 Hi, I’m @hadigani
 - Currently hunting a lot of tech talent!
 - Reach me through email at Ahadian.Gani@gmail.com
 
